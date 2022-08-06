@@ -11,4 +11,4 @@ Here are some ideas to get you started:-->
 - 👯 I’m looking to collaborate on Blockchain and AI/ML based projects
 - 💬 Ask me about History , anything.
 - 📫 How to reach me: captainstormshadow07@gmail.com
-- ⚡ Fun fact: Motivation comes and goes, Desipline is Eternal.
+- ⚡ Fun fact: Motivation comes and goes, Discipline is Eternal.
