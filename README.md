@@ -1,6 +1,5 @@
-![](https://komarev.com/ghpvc/?username=ArtaXerxess&color=green)
 
-
+![](https://komarev.com/ghpvc/?username=ArtaXerxess)
 
 ## Hi there 👋
 
