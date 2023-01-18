@@ -9,4 +9,10 @@
 - 💬 Ask me about History , anything.
 - ⚡ Fun fact: Motivation comes and goes, Discipline is Eternal.
 
-Have a Good day :pray: 
+Have a Good day :pray:
+
+[![trophy](https://github-profile-trophy.vercel.app/?username=ArtaXerxess)](https://github.com/ryo-ma/github-profile-trophy)
+
+
+
+![](https://komarev.com/ghpvc/?username=ArtaXerxess&color=green)
