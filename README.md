@@ -6,9 +6,6 @@
 
 <p align="left"> <a href="https://twitter.com/guddu13712" target="blank"><img src="https://img.shields.io/twitter/follow/guddu13712?logo=twitter&style=for-the-badge" alt="guddu13712" /></a> </p>
 
-- 🔭 I’m currently working on **BlockChain based Projet**
-- 🌱 I’m currently learning **ML,NLP, and DL**
-- 👯 I’m looking to collaborate on **Blockchain and AI/ML based projects**
 - 💬 Ask me about **Anything**
 - 📫 How to reach me **captainstormshadow07@gmail.com**
 - ⚡ Fun fact **Motivation comes and goes, Discipline is Eternal.**
