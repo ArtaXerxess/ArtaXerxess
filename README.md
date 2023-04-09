@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Anything**
 - 📫 How to reach me **captainstormshadow07@gmail.com**
-- ⚡ Fun fact **Motivation comes and goes, Discipline is Eternal.**
+- ⚡ Fun fact **All hard work brings a profit, but mere talk leads only to poverty. - Proverbs 14:23**
 
 Have a Good Day :pray:
 
